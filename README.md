@@ -1,9 +1,5 @@
 # Abdulkadar_Kapasi
 
+Rakesh here, I like Node.Js, python, Java and many other.
 
-Hi everyone!
-
-
-
-Abdulkadar here I like Java, node.js, (that's what I likes very much).
-I have been living here for so long you couldn't know.
+So here, I am looking for some general task, so let's move on to that.
