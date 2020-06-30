@@ -1,1 +1,0 @@
-# Abdulkadar_Kapasi
